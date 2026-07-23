@@ -6,7 +6,7 @@ InAmigos Foundation
 
 ## Duration
 
-19 June 2026 - 3 July 2026
+June 2026 - July 2026
 
 ## Overview
 
